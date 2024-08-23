@@ -6,3 +6,5 @@ rafalves21
 
 COUTINHO VOLTOU
 ![](https://media1.tenor.com/m/FZ9gTKlmJ_8AAAAd/vascouiuiuiui.gif)
+
+![](https://media1.tenor.com/m/shH18KWTKSwAAAAC/palmas-payet-payet-vasco.gif)
