@@ -12,3 +12,4 @@ COUTINHO VOLTOU
 ![](https://media1.tenor.com/m/8tAmH3T0bkYAAAAd/gigas0-vasc%C3%A3o.gif)
 ![](https://media1.tenor.com/m/6AR1IELZpjAAAAAd/coutinho-xmas.gif)
 ![](https://media1.tenor.com/m/gWFGuY1tr7QAAAAd/ronaldo-brighton.gif)
+![](https://media1.tenor.com/m/bTbRxf13DE8AAAAd/cristiano-ronaldo.gif)
